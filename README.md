@@ -1,6 +1,6 @@
-# For U Lindo Universo
 
 # 💕 Lento rumbo a tu universo
+## Esto es para ti 
 
 Lento, lento, avanzamos sin prisa,
 en el baile de miradas, tu sonrisa.
