@@ -3,7 +3,9 @@
 ## Esto es para ti 
 
 Lento, lento, avanzamos sin prisa,
+
 en el baile de miradas, tu sonrisa.
+
 La estrella más brillante, en ti reside,
 una dama hermosa, humilde y decidida.
 
